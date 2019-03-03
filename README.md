@@ -1,1 +1,1 @@
-My CV in .docx amd PDF format
+My CV in .docx and PDF format
